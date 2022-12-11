@@ -1,1 +1,1 @@
-# rsschool-cv
+https://loktiowa.github.io/rsschool-cv/cv
